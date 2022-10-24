@@ -1,1 +1,1 @@
-# belajarkak
+# belajarkak ki sanak
